@@ -1,0 +1,2 @@
+# premium-coal-forge-build-001-coal-forge-building-fire-pot
+Stop piecing together forge plans from scattered YouTube clips and forum posts. Your vision of a perfect coal forge deserves a single, organized blueprint.  This Notion template transforms the chaotic process of building a coal forge and fire pot into a streamlined workshop. Instead of losing track of materials, measurements, and safety checks, you
